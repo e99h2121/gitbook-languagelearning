@@ -7,6 +7,8 @@ Eventually, it will be depending on the situation so the following is just a my 
 
 ## In my case
 
+I took a TOEIC examination once in China, with Chinese student. 
+
 Also there are similar certification which is hosted in Japan. -> [Casec](http://global.casec.com/). 
 
 If you just want to quick try for your fun, this is also reasonable. 
