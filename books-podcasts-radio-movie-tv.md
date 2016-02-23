@@ -34,7 +34,7 @@
 - [しごとの基礎英語](http://cgi2.nhk.or.jp/gogaku/english/jobkiso/)
 - [おとなの基礎英語](https://www2.nhk.or.jp/gogaku/english/otokiso/)
 - [テレビで中国語](https://www2.nhk.or.jp/gogaku/chinese/tv/)
-- [NHK World]()
+- [NHK World](http://www3.nhk.or.jp/nhkworld/en/live/)
 
 ## And, the school I went
 
