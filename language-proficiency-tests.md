@@ -16,7 +16,7 @@ If you just want to quick try, this is also reasonable.
 
 ### TOEIC
 
-My stances toward TOEIC, and kind of certification. I'm not getting higher score, so if the purpose is to get the highest score, and if you just want to focus on, this article is not the right place. There must be a lot of tips and techniques. 
+My stances toward TOEIC, and kind of certification. I'm not getting higher score, so if the purpose is to get the highest score, and if you just want to focus on, this article is not the right place. There must be a lot of tips and techniques. Also, there must be the straight way to study about the test.
 
 
 ### HSK
