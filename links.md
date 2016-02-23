@@ -16,7 +16,7 @@ The URL below are also come from my own experience.
 
 ##Chinese
 
-- 
+- [どんと来い中国語](http://dokochina.com/)
 
 ##Every kind of languages
 
