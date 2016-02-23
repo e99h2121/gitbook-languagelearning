@@ -11,7 +11,7 @@ I took a TOEIC examination once in China, with Chinese student. The purpose is j
 
 Also there are similar certification which is hosted in Japan. -> [Casec](http://global.casec.com/). 
 
-If you just want to quick try for your fun, this is also reasonable. 
+If you just want to quick try, this is also reasonable. 
 
 
 ### TOEIC
