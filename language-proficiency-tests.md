@@ -16,7 +16,7 @@ If you just want to quick try, this is also reasonable.
 
 ### TOEIC
 
-Because some person is trying so hard to achive a good score in TOEIC, I also want to think about this topic more deeply by myself.
+Because some person is trying so hard to achieve a good score in TOEIC, I also want to think about this topic more deeply by myself.
 
 My stances toward TOEIC, and kind of certification. 
 
