@@ -29,6 +29,8 @@ The experience to learn two kind of language at the same time. Especially about 
 
 Because I was live in Shanghai, China. I thought that not to learn Chinese is missing my chance. And always thought that "if I go back to Japan, my own experience should be my important property. And then at that time Chinese language also should be one of it, because I definitely live in China". Even our working language is English, eventually communication is come from one's mind and mind. At that time, if I want to have better relationship with Chinese workmate, just to use English is still not good enough. 
 
+It was my motivation. Even though, when we talking about the method to learn in practical way, if we are not good enough in one kind of language, the first thing is to be a parfect in one language as quickly as possible. It is also true. Without mastering any language, it is also impossible to be a two or three kind of language speaker. And it delivers just a imperfect result. So, after getting one language in our minimum requirement level, we should proceed to the next step.
+
 
 
 #Mother language
