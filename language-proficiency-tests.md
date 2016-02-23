@@ -7,7 +7,7 @@ Eventually, it will be depending on the situation so the following is just a my 
 
 ## In my case
 
-I took a TOEIC examination once in China, with Chinese student. 
+I took a TOEIC examination once in China, with Chinese student. The purpose is just for fun, and just wanted to indicate my current level of English after getting used to live in Shanghai. 
 
 Also there are similar certification which is hosted in Japan. -> [Casec](http://global.casec.com/). 
 
