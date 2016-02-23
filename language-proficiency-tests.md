@@ -25,4 +25,5 @@ At least there are a lot of information in this topics in every website around t
 
 Also I tried HSK which is called [Hanyu Shuiping Kaoshi](https://en.wikipedia.org/wiki/Hanyu_Shuiping_Kaoshi).
 
+Because I'm living in China, to get this certificate is more exciting and to show the result to my workmate was more impressive experience for me. 
 
