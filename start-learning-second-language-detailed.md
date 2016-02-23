@@ -27,6 +27,7 @@ The experience to learn two kind of language at the same time. Especially about 
 
 ## In my case
 
+Because I was live in Shanghai, China. I thought that not to learn Chinese is missing my chance. And always thought that "if I go back to Japan, my own experience should be my important property. And then at that time Chinese language also should be one of it, because I definitely live in China". Even our working language is English, eventually communication is come from one's mind and mind. At that time, if I want to have better relationship with Chinese workmate, just to use English is still not good enough. 
 
 
 
