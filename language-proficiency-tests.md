@@ -2,6 +2,8 @@
 
 Now TOEIC must be most popular test among Japan to certificate the skill of English. I think it is depending on the purpose how we can use it. If, we are some job seeker, to decorate our resume, to use these examination is a kind of useful tool. Other cases, because it is very clear indicator so just to take a test also a kind of fun. 
 
+Eventually, it will be depending on the situation so the following is just a my case. 
+
 
 ## In my case
 
