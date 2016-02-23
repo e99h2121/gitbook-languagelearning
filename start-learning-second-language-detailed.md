@@ -42,7 +42,7 @@ The word which is come from the bottom of my heart must be expressed in Japanese
 
 ## In my case
 
-I studied fundamental logical writing, and logical thinking in technical writing. 
+I studied fundamental logical writing, and logical thinking in technical writing. For these information refer -> Book: [Good Design](https://www.gitbook.com/book/nobukoyamada/good-design/details)
 
 
 
