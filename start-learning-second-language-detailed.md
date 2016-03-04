@@ -87,4 +87,17 @@ And in the language skill there are 4 kind of factor. It is Speaking, Writing, L
 
 
 
+#Dictionary
+
+Here is the dictionary we can access online.
+
+- [Google翻訳](https://translate.google.co.jp/?hl=ja)
+
+- [Excite翻訳](http://www.excite.co.jp/world/english/)
+
+- [訳Go](http://www.yakugo.com/WebHint/Quick.aspx)
+
+- [thesaurus](http://www.thesaurus.com/)
+
+- [自動翻訳サイトのリンク集](http://www.dio.ne.jp/user/bestsites/translate.html)
 
